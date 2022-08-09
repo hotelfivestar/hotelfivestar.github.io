@@ -1,0 +1,1 @@
+# hotelfivestar.github.io
